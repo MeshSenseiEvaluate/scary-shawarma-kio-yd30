@@ -1,4 +1,4 @@
-# 
+# scary shawarma kiosk Scripts elite offers the most advanced scary shawarma kiosk Script, with undetectable and auto-collect. Perfect for dominating
 
 
 
